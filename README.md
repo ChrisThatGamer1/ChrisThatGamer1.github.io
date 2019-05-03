@@ -1,2 +1,0 @@
-# ChrisThatGamer
-# Trust the process
